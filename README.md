@@ -8,9 +8,9 @@
 
 *Giá như con người ta, đi cùng nhau qua bao năm dài tháng rộng, đến khi tình yêu đã cũ nhàu hay gặp ngàn trắc trở cũng không thay lòng đổi dạ, không đổi dời tâm can. Dù có gặp bao nhiêu trái ngang vẫn kiên tâm đến cùng thì có lẽ những người trên cuộc đời này đã chung nhau một tấm lòng."*
 
-📙📙 *"Người ta vẫn hay cười dù đâu đó trong lòng chất chứa những nỗi buồn không vơi. Có những nỗi buồn âm ỉ, trải dài suốt ngần ấy tháng năm trong cuộc đời. Những nỗi buồn không thể nhìn bằng mắt, nghe bằng tai, mà phải thấu bằng tất cả sự rung động của một trái tim rung lên từng nhịp thổn thức.**
+📙📙 *"Người ta vẫn hay cười dù đâu đó trong lòng chất chứa những nỗi buồn không vơi. Có những nỗi buồn âm ỉ, trải dài suốt ngần ấy tháng năm trong cuộc đời. Những nỗi buồn không thể nhìn bằng mắt, nghe bằng tai, mà phải thấu bằng tất cả sự rung động của một trái tim rung lên từng nhịp thổn thức.*
 
-**Người thật sự có lòng với bạn, họ sẽ thấu nỗi buồn trong bạn, họ sẽ cảm nhận hết những tháng ngày bạn từng đi qua bằng tất cả trái tim. Và, họ sẽ tìm cách để mang niềm vui trở lại trong cuộc đời bạn, để tháng ngày sau này của bạn được bù đắp bằng tất cả bình an."*
+*Người thật sự có lòng với bạn, họ sẽ thấu nỗi buồn trong bạn, họ sẽ cảm nhận hết những tháng ngày bạn từng đi qua bằng tất cả trái tim. Và, họ sẽ tìm cách để mang niềm vui trở lại trong cuộc đời bạn, để tháng ngày sau này của bạn được bù đắp bằng tất cả bình an."*
 
 
 ![Image](https://github.com/user-attachments/assets/ed56826b-f1fb-42de-8b6d-fe80947e6897)

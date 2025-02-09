@@ -4,9 +4,9 @@
 
 📗📗 *"Chúng ta đã trải qua rất nhiều chuyện khó khăn trong đời. Nhưng xin đừng nản lòng, mọi sự an bài đều đúng theo quy luật vốn có của nó. Hãy tin rằng, bầu trời vẫn rất trong xanh, nắng vẫn rất chói chang và lòng mình vẫn tràn đầy hy vọng."*
 
-📙 "Mình có một chiếc áo khoác mặc bốn năm, năm năm, đến nỗi hai bên vai áo đã bạc màu, lưng áo đã sờn cũ, phải thay dây kéo đến tận mấy lần, nhưng mỗi khi mặc vào vẫn cảm thấy rất thoải mái và dễ chịu. Mặc dù mình đã mua hai, ba cái áo khoác thay thế nhưng chẳng có cái nào cảm thấy thoải mái đến vậy cả.*
+📙 "Mình có một chiếc áo khoác mặc bốn năm, năm năm, đến nỗi hai bên vai áo đã bạc màu, lưng áo đã sờn cũ, phải thay dây kéo đến tận mấy lần, nhưng mỗi khi mặc vào vẫn cảm thấy rất thoải mái và dễ chịu. Mặc dù mình đã mua hai, ba cái áo khoác thay thế nhưng chẳng có cái nào cảm thấy thoải mái đến vậy cả.
 
-*Giá như con người ta, đi cùng nhau qua bao năm dài tháng rộng, đến khi tình yêu đã cũ nhàu hay gặp ngàn trắc trở cũng không thay lòng đổi dạ, không đổi dời tâm can. Dù có gặp bao nhiêu trái ngang vẫn kiên tâm đến cùng thì có lẽ những người trên cuộc đời này đã chung nhau một tấm lòng."
+Giá như con người ta, đi cùng nhau qua bao năm dài tháng rộng, đến khi tình yêu đã cũ nhàu hay gặp ngàn trắc trở cũng không thay lòng đổi dạ, không đổi dời tâm can. Dù có gặp bao nhiêu trái ngang vẫn kiên tâm đến cùng thì có lẽ những người trên cuộc đời này đã chung nhau một tấm lòng."
 
 📙📙 *"Người ta vẫn hay cười dù đâu đó trong lòng chất chứa những nỗi buồn không vơi. Có những nỗi buồn âm ỉ, trải dài suốt ngần ấy tháng năm trong cuộc đời. Những nỗi buồn không thể nhìn bằng mắt, nghe bằng tai, mà phải thấu bằng tất cả sự rung động của một trái tim rung lên từng nhịp thổn thức.*
 

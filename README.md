@@ -2,7 +2,7 @@
 
 📗 *"Không tương phùng cũng là một dạng phước phần ông trời dành cho chúng ta. Có những người đừng nên gặp lại, cũng chẳng cần tung tích gì về họ, cứ như thế mà bặt vô âm tín. Để những năm tháng đã qua như một giấc ngủ mơ, khi tỉnh dậy ai nấy đều quên hết mình từng xuất hiện trong phần đời của nhau."*
 
-📗📗 **"Chúng ta đã trải qua rất nhiều chuyện khó khăn trong đời. Nhưng xin đừng nản lòng, mọi sự an bài đều đúng theo quy luật vốn có của nó. Hãy tin rằng, bầu trời vẫn rất trong xanh, nắng vẫn rất chói chang và lòng mình vẫn tràn đầy hy vọng. Những điều tốt đẹp càng đến muộn thì càng giúp chúng ta biết cách trân trọng. Nụ cười của bạn chính là thứ quý giá nhất, hơn tất thảy. Hãy mỉm cười thật tươi, bạn nhé!"**
+📗📗 **"Chúng ta đã trải qua rất nhiều chuyện khó khăn trong đời. Nhưng xin đừng nản lòng, mọi sự an bài đều đúng theo quy luật vốn có của nó. Hãy tin rằng, bầu trời vẫn rất trong xanh, nắng vẫn rất chói chang và lòng mình vẫn tràn đầy hy vọng."**
 
 📙 *"Mình có một chiếc áo khoác mặc bốn năm, năm năm, đến nỗi hai bên vai áo đã bạc màu, lưng áo đã sờn cũ, phải thay dây kéo đến tận mấy lần, nhưng mỗi khi mặc vào vẫn cảm thấy rất thoải mái và dễ chịu. Mặc dù mình đã mua hai, ba cái áo khoác thay thế nhưng chẳng có cái nào cảm thấy thoải mái đến vậy cả.*
 
